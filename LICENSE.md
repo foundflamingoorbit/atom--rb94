@@ -1,4 +1,4 @@
-# 
+# exclusive Atom for PC | Atom for Windows Integration | live-share + auto-completion is the best Atom for PC | Atom for Windows integration, featuring live-share and
 
 
 
